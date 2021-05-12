@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BedantaDey06
+- 👀 I’m interested in coding, reading and mining
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: Discord me @ Bedanta#6181
